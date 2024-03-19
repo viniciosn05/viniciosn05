@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🪙 About Me:
 Acadêmico de Sistemas de Informação 👨🏻‍💻 <br>Ingressando no Mundo da Tecnologia ⚙️
 
 
